@@ -1,0 +1,1 @@
+# SMIT_BR_architects_assignment
